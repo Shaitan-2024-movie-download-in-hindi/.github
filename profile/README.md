@@ -7,8 +7,6 @@
 
 [➤►🌍📺📱👉Download🔴✅👉 Shaitaan Movie HD](https://www.rmovies.site)**
 
-<a href="https://www.rmovies.site" rel="nofollow" data-target="animated-image.originalLink"><img src="https://camo.githubusercontent.com/15786e5906b59b147064f232e20c72ab28618fa4cbf81b8f23f58fbc50995f60/68747470733a2f2f62616e676c617264696172792e636f6d2f77702d636f6e74656e742f75706c6f6164732f323032342f30312f6d6f76696568756268712e676966" alt="" data-canonical-src="https://banglardiary.com/wp-content/uploads/2024/01/moviehubhq.gif" style="max-width: 100%; display: inline-block;" data-target="animated-image.originalImage"></a>
-
 
 shaitaan movie download
 shaitan movie download
